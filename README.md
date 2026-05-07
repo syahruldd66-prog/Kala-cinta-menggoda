@@ -1,1 +1,0 @@
-# Kala-cinta-menggoda
